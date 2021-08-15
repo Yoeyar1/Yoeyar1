@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yoeyar1
-- 👀 I’m interested in game develope
+- 👀 I’m interested in to create my onw game
 - 🌱 I’m currently learning coding and unity engine
 - 💞️ I’m looking to collaborate on new partner
 - 📫 u can send mails to kyawhtoobala101@gmail.com
